@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bigcopper
+- 👀 I’m interested in Unity and game dev
+- 🌱 I’m currently learning How t code (hopefully)
+- 💞️ I’m looking to collaborate on anything! (contact me 
+- 📫 How to reach me buckybiscuits@gmail.com
